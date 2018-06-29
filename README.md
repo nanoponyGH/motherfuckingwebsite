@@ -1,1 +1,1 @@
-# motherfuckingwebsite
+https://nanoponygh.github.io/motherfuckingwebsite/
